@@ -2,24 +2,35 @@
 
 **20min**
 
-- 2 can tomato (diced)
-- 1/2 onion (chopped)
-- 2 - 3 garlic (crushed)
-- 1/4 cup olive oil (liquid)
-- 1/8 tsp chili pepper flake
-- 1 Tbs basil 
+- 1 can San Marzano tomato sauce (Trader Joe's) 
+- 1 medium onion (chopped)
+- 3-4 garlic cloves (minced) 
+- 1/4 cup olive oil 
+- 1/2 tsp chili pepper flake
+- 1 Tbs basil, oregano, thyme  
 - 1 tsp salt
 - 1/8 pepper or less
+- Fresh basil leaves 
+- Basil ribbons for decor 
+- Pecorino Romano
 
 _use long pan and wooden spoon_
 
 > Heat olive oil in pan on medium heat for one minute
 
-> Saute onion (add garlic; later _garlic burns faster_)
+> Saute onion and sprinkle sea salt to bring out the moisture and chili flakes  (add garlic; later _garlic burns faster_)
 
-> Add tomato, chili, basil, salt, pepper
+> Add tomato, basil, thyme, oregaono, a touch of more salt, pepper
 
-> Low heat for 20mins - no cover.
+> Low heat for 20mins - no cover. Stir occassionally. 
+
+> Add 4-5 basil leaves, let simmer
+
+>On cutting board, cut 1 handful of basil ribbons (Youtube: How to cut Basil Ribbons) 
+
+> Sprinkle Pecorion Romano and basil ribbons 
+
+> Bon Appetit! 
 
 ###Shrimp variation
 > Take off shell and saute seperatly
