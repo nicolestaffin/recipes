@@ -13,6 +13,7 @@
 - Fresh basil leaves 
 - Basil ribbons for decor 
 - Pecorino Romano
+- Linguine works best 
 
 _use long pan and wooden spoon_
 
